@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @henriquezzz
-- 👀 I’m interested in programar :)
-- 🌱 I’m currently learning a programar :)
-- 💞️ I’m looking to collaborate on n sei ainda
-- 📫 How to reach me n tem como ainda 
+- 👀 I’m interested in integralismo 
+- 🌱 I’m currently learning inglexi
+- 💞️ I’m looking to collaborate on revolução industrial 
+- 📫 How to reach me facebook 
 
 <!---
 henriquezzz/henriquezzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
